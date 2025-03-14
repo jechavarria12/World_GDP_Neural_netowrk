@@ -5,16 +5,16 @@
 [*Mariana Solano Pineda*](https://www.linkedin.com/in/mariana-solano-pineda/)
 Estudiante de economía y administración de empresas Universidad de Los Andes
 
-[*Ángela Aparicio*]()
+[*Ángela Aparicio*](www.linkedin.com/in/aparicio-angela)
 Estudiante de economía Universidad de Los Andes
 
-[*Juan David Saldaña*]()
+[*Juan David Saldaña Rivera*](https://www.linkedin.com/in/juan-david-salda%C3%B1a-rivera-829ab62b3/)
 Estudiante de economía Universidad de Los Andes
 
-[*Juan José Echavarría*]()
+[*Juan José Echavarría Villamizar*](www.linkedin.com/in/juan-jose-echavarria-villamizar)
 Estudiante de economía Universidad de Los Andes
 
-[*Juan Diego Barrios*]()
+[*Juan Diego Barrios Esteban*](https://www.linkedin.com/in/juan-diego-barrios-esteban-6b684028b)
 Estudiante de economía Universidad de Los Andes
 
 📚 Descripción
